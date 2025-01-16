@@ -1,2 +1,16 @@
-# intro-kinda
-So I am mostly in the upper fnaf area or whatever fandom place my current skin is. Pls draw or smth on my straw /nf. If my current skin is sleeping im probably afk 
+# intro
+Howdy welcome to the most rootin' tootin' Github of ponytown. Im ok with most people interacting (check my strawpage for dnis). 
+If my current skin is sleeping Im probably afk 
+⢀⣄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⢀⣄⠀⠀
+⢀⣿⣿⡄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⣾⣿⣄⠀
+⣾⣿⣿⣧⣀⡀⠀⠀⠀⣀⡠⢤⢤⣀⡀⠀⠀⠀⣀⣠⣿⣿⣿⡆
+⢻⣿⣿⣿⣿⣷⣶⠖⠒⠉⠀⠀⠀⠈⠑⠒⢲⣶⣿⣿⣿⣿⣿⠃
+⠀⠙⠿⣿⣿⣿⣿⡄⠀⠀⠀⢠⠀⠀⠀⠀⣸⣿⣿⣿⡿⠟⠁⠀
+⠀⠀⠀⠀⢈⣩⡗⡄⠀⠀⠀⠈⠀⠀⠀⢀⠼⣏⡉⠁⠀⠀⠀⠀
+⠀⠀⠀⠀⠰⢯⡆⣧⡀⠀⣠⠔⢆⡀⠀⣸⢠⣾⠇⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠸⣅⡈⠛⡜⠁⠀⠀⠑⡟⠋⣠⡼⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠈⡆⢸⡀⠀⠀⡟⠀⡞⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⢣⠰⣿⠀⢸⡇⢠⠃⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⡟⢻⡆⣿⠛⡇⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⢣⡜⠃⠛⣭⠃⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠰⠴⠖⠋⠀⠀⠀⠀⠀
